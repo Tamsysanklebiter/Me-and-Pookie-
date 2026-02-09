@@ -10,13 +10,13 @@
 
 ![.](https://i.postimg.cc/kgNfK5dZ/Git-Hub-designs.png)
 
-![banner](https://i.postimg.cc/MKBDJmdv/Git-Hub-designs-(2).png)
+![banner](https://i.postimg.cc/02B2q7Xt/Git-Hub-designs-(6).png)
 
 ![gif](https://i.postimg.cc/255Ytyrb/blinkies-Cafe-x3.gif)
 
 ![.](https://i.postimg.cc/W4wZ5DWs/Git-Hub-designs-(1).png)
 
-![banner](https://i.postimg.cc/MKBDJmdv/Git-Hub-designs-(2).png)
+![banner](https://i.postimg.cc/mg9RfJHL/Git-Hub-designs-(7).png)
 
 ![gif](https://i.postimg.cc/3x8QyNyB/blinkies-Cafe-DL.gif)
 
